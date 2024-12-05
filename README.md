@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...we54
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...4562
+- ⚡ Fun fact: ...4562yu
 dsf
 <!---werdfgdf
 kolopolfa/kolopolfa is a ✨ special ✨ repository bdsfecause its `README.md` (this file) appears on your GitHub profile.5645
