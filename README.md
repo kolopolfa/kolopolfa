@@ -4,7 +4,7 @@ gre- 👋 Hi, I’m @kolopolfa
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...we54
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...4562yu
+- ⚡ Fun fact: ...4562yusdf
 dsfsdfsdf50354
 <!---werdfgdfsdf
 kolopolfa/kolopolfa is a ✨ special ✨ repository bdsrwefecause its `README.md` (this file) appears on your GitHub profile.5645
