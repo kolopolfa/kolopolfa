@@ -2,7 +2,7 @@ gre- 👋 Hi, I’m @kolopolfa
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...543see
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...h
+- 📫 How to reach me ...hre
 - 😄 Pronouns: ...xvcbvvv
 - ⚡ Fun fact: ...4562yusdf
 dsfsdfsdf50354sdfhn
