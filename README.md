@@ -1,7 +1,7 @@
 bbbbbcxygre- 👋 Hi, I’m @kolopolfa
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...543seedfggdd
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ...gdffd
 - 📫 How to reach me ...hre
 - 😄 Pronouns: ...xvcbvvv
 - ⚡ Fun fact: ...4562yusdfdfgxv
