@@ -3,7 +3,7 @@ dssdsdfbbbbbcxygre- 👋 Hi, I’m @kolopolfa
 - 🌱 I’m currently learning ...543seedfggdd
 - 💞️ I’m looking to collaborate on ...gdffd
 - 📫 How to reach me ...hre
-- 😄 Pronouns: ...xvcbvvv
+- 😄 Pronouns: ...xvcbvvv,kkj
 - ⚡ Fun fact: ...4562yusdfdfgxvtytyty
 dsfsdfsdf50354sdfhn
 <!---bvfv15sddsj,kj,k
