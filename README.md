@@ -1,7 +1,7 @@
 cvbmjhdssdsdfbbbbbcxygre- 👋 Hi, I’m @kolopolfa
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...543seedfggddtrgtr
-- 💞️ I’m looking to collaborate on ...gdffdgccdbdsfdsfd
+- 💞️ I’m looking to collaborate on ...gdffdgccdbdsfdsfddew
 - 📫 How to reach me ...zazazeee
 - 😄 Pronouns: ...xvcbvvv,kkjhgnmjdfdddew
 - ⚡ Fun fact: ...4562yusdfdfgxvtytytyhyttyxcvcc
