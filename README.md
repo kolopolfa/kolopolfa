@@ -1,8 +1,8 @@
-cvbmjhdssdsdfbbbbbcxygre- 👋 Hi, I’m @kolopolfa
+ucvbmjhdssdsdfbbbbbcxygre- 👋 Hi, I’m @kolopolfa
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...543seedfggddtrgtr
 - 💞️ I’m looking to collaborate on ...gdffdgccdbdsfdsfddew
-- 📫 How to reach me ...zazazeee
+- 📫 How to reach me ...zazazeeeju
 - 😄 Pronouns: ...xvcbvvv,kkjhgnmjdfdddew
 - ⚡ Fun fact: ...4562yusdfdfgxvtytytyhyttyxcvcc
 <!---bvfv15sddsj,kj,kerxvcfss
