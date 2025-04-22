@@ -2,7 +2,7 @@ xcvxccxcxcxcx8ucvbmjhdssdsdfbbbbbcxygre- 👋 Hi, I’m @kolopolfa
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...543seedfggddtrgtrbgc
 - 💞️ I’m looking to collaborate on ...gdffdgccdbdsfdsfddewgfbgfbrgg
-- 📫 How to reach me ...zazazeeejuvbnv17262
+- 📫 How to reach me ...zazazeeejuvbnv17262dsfdsf
 - 😄 Pronouns: ...xvcbvvv,kkjhgnmjdfdddew44
 - ⚡ Fun fact: ...4562yusdfdfgxvtytytyhyttyxcvcc
 <!---bvfv15sddsj,kj,kerxvcfsscgc
