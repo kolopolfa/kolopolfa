@@ -2,7 +2,7 @@ sdswwwxcvxccxcxcxcx8ucvbmjhdssdsdfbbbbbcxygre- 👋 Hi, I’m @kolopolfa
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...543seedfggddtrgtrbgc
 - 💞️ I’m looking to collaborate on ...gdffdgccdbdsfdsfddewgfbgfbrggui,uiiu
-- 📫 How to reach me ...zazazeeejuvbnv17262dsfdsfvfcxgerregfddfdfewweww
+- 📫 How to reach me ...zazazeeejuvbnv17262dsfdsfvfcxgerregfddfdfewwewwcvbvbvc
 - 😄 Pronouns: ...xvcbvvv,kkjhgnmjdfdddew44
 - ⚡ Fun fact: ...4562yusdfdfgxvtytytyhyttyxcvcccvbcvvv
 <!---bvfv15sddsj,kj,kerxvcfsscgc
