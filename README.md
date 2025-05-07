@@ -3,7 +3,7 @@ sdswwwxcvxccxcxcxcx8ucvbmjhdssdsdfbbbbbcxygre- 👋 Hi, I’m @kolopolfa
 - 🌱 I’m currently learning ...543seedfggddtrgtrbgc
 - 💞️ I’m looking to collaborate on ...gdffdgccdbdsfdsfddewgfbgfbrggui,uiiu
 - 📫 How to reach me ...zazazeeejuvbnv17262dsfdsfvfcxgerregfddfdfewwewwcvbvbvc
-- 😄 Pronouns: ...xvcbvvv,kkjhgnmjdfdddew44
+- 😄 Pronouns: ...xvcbvvv,kkjhgnmjdfdddew44jmhmjhjhm
 - ⚡ Fun fact: ...4562yusdfdfgxvtytytyhyttyxcvcccvbcvvv
 <!---bvfv15sddsj,kj,kerxvcfsscgc
 kolopolfa/kolopolfa is a ✨ special ✨ repository bdsrwefecause its `README.md` (this file) appears on your GitHub profile.564552wrddd
