@@ -1,6 +1,6 @@
 sdswwwxcvxccxcxcxcx8ucvbmjhdssdsdfbbbbbcxygre- 👋 Hi, I’m @kolopolfa
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...543seedfggddtrgtrbgc
+- 🌱 I’m currently learning ...543seedfggddtrgtrbgcregrer
 - 💞️ I’m looking to collaborate on ...gdffdgccdbdsfdsfddewgfbgfbrggui,uiiuvnnvvv695
 - 📫 How to reach me ...zazazeeejuvbnv17262dsfdsfvfcxgerregfddfdfewwewwcvbvbvcggfdgsddssderwrwehjmhjfhgfbbvvvbvbvvregffthrt
 - 😄 Pronouns: ...xvcbvvv,kkjhgnmjdfdddew44jmhmjhjhmdfvc
