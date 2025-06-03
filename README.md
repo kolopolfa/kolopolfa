@@ -1,7 +1,7 @@
 bvbvsdswwwxcvxccxcxcxcx8ucvbmjhdssdsdfbbbbbcxygre- 👋 Hi, I’m @kolopolfa
 - 👀 I’m interested in ...gfngnf
 - 🌱 I’m currently learning ...543seedfggddtrgtrbgcregrer
-- 💞️ I’m looking to collaborate on ...gdffdgccdbdsfdsfddewgfbgfbrggui,uiiuvnnvvv695
+- 💞️ I’m looking to collaborate on ...gdffdgccdbdsfdsfddewgfbgfbrggui,uiiuvnnvvv695rftrfrf
 - 📫 How to reach me ...zazazeeejuvbnv17262dsfdsfvfcxgerregfddfdfewwewwcvbvbvcggfdgsddssderwrwehjmhjfhgfbbvvvbvbvvregffthrt
 - 😄 Pronouns: ...xvcbvvv,kkjhgnmjdfdddew44jmhmjhjhmdfvc
 - ⚡ Fun fact: ...4562yusdfdfgxvtytytyhyttyxcvcccvbcvvvhrthfdtredgfddfgdf
